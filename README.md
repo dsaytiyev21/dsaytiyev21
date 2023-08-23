@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dsaytiyev21
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...dtyu rhthrt
+- 💞️ I’m looking to collaborate on ...dtyu rhthrttey j
 - 📫 How to reach me ...dzfhdfhhaeer tu rth
 1кц уйyrulafarfe kyutyt
 <!---
