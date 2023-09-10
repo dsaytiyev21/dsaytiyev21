@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...j s54j5 er erj trtrkrt 
 - 💞️ I’m looking to collaborate on ...dtyu rhthrttey jo t87
-- 📫 How to reach me ...dzfhdfhhaeer tu rthk hj tjwy srty4 4  6456tryrt ret
+- 📫 How to reach me ...dzfhdfhhaeer tu rthk hj tjwy srty4 4  6456tryrt ret jyutyukyuk
 1кц уйyrulafarfe kyutyt kruygwergwer
 <!---
 dsaytiyev21/dsaytiyev21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
