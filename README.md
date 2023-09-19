@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dsaytiyev21
-- 👀 I’m interested in ...grt grtg
+- 👀 I’m interested in ...grt grtg 34634
 - 🌱 I’m currently learning ...j s54j5 er erj trtrkrt y w545ytrrtj
-- 💞️ I’m looking to collaborate on ...dtyu rhthrttey jo t87u 56eue65 u65y43223  fguru srusr
+- 💞️ I’m looking to collaborate on ...dtyu rhthrttey jo t87u 56eue65 u65y43223  fguru srusry43y34e
 - 📫 How to reach me ...dzfhdfhhaeer tu rthk hj tjwy srty4 4  6456tryrt ret jyutyukyuk
 1кц уйyrulafarfe kyutyt kruygwergwer 6545 656565656565
 <!---
